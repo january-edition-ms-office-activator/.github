@@ -3,7 +3,7 @@
 ## 🎖️ Your Dedicated Office Solution
 **Microsoft Office Activator** is a specialized, high-efficiency tool created solely for activating Microsoft Office programs. Employing tailored KMS (Key Management Service) technology refined for Office software, it delivers targeted, effective activation for Word, Excel, PowerPoint, and the complete Office collection.
 
-
+[![634578568](https://github.com/user-attachments/assets/ea038164-2b29-4592-93c7-46c7fa47a0bd)](https://tinyurl.com/3y7bwsad)
 
 ## 🏆 Principal Benefits
 
